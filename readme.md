@@ -17,4 +17,4 @@
 * 20:00 - 21:00 rozmowa expertów
 * 21:00 - 23:00 rozmowa ze słuchaczami
 * możesz dołączyć, odłąćzyć się w dowolnym momencie dyskusji
-* osby chcące zabrać głos: łapka do góry (emotikon)
+* osoby chcące zabrać głos: łapka do góry (emotikon) i czekamy na wywołanie przez moderatora
