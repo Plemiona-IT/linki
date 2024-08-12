@@ -12,4 +12,6 @@
 * [WALDEK Z "ZAKUPU KONTROLOWANEGO" NA AUTA WYDAJE 40 TYS. MIESIĘCZNIE](https://youtu.be/G-0kMThQlBQ?si=nMewRwOA_Fb51PWv)
 
 ## Przykłady > ~20k miesięcznie
+
+### Twitter
 * [jak w 6 lat moje wynagrodzenie wzrosło z 5 000 zł brutto do prawie 19 000 zł brutto](https://x.com/Ojciec_Klasa/status/1822661027269362165)
