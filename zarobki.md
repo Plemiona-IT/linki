@@ -7,6 +7,6 @@
 * [Zarabiałem od 0k do 80k na miesiąc.](https://www.linkedin.com/posts/sopalczynski_zarabia%C5%82em-od-0k-do-80k-na-miesi%C4%85c-naj%C5%82atwiej-activity-7213821709454368768-aebZ?utm_source=share&utm_medium=member_desktop)
 
 ### Youtube
-* [LAMBO KUPIONE Z UCZCIWEJ PRACY *Wspólnik Waldka programisty](https://youtu.be/IlOT8bckNYo?si=SM9LSU760CmcD9tc)
+* [LAMBO KUPIONE Z UCZCIWEJ PRACY - Wspólnik Waldka programisty](https://youtu.be/IlOT8bckNYo?si=SM9LSU760CmcD9tc)
 * [32-LATEK ZARABIAJĄCY 100.000 MIESIĘCZNIE W LAMBORGHINI HURACAN](https://youtu.be/mdc6ywBM2W8?si=roRnHaiCJm1-jRL-)
 * [WALDEK Z "ZAKUPU KONTROLOWANEGO" NA AUTA WYDAJE 40 TYS. MIESIĘCZNIE](https://youtu.be/G-0kMThQlBQ?si=nMewRwOA_Fb51PWv)
