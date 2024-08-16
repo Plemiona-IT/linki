@@ -12,6 +12,7 @@
 | 05.09.2024 | 20:00-23:00 | Piotr Szwed     | TBD                 | TBD                 | Kolektyw IT? Zalety, wyzwania, praktyka.                                            |
 | TBD        |             |                 |                     |                     | Jak budować karierę i markę osobistą.                                               |
 | TBD        |             |                 |                     |                     | Nie rozpraszaj się. Jak dbać o produktywność?                                       |
+| TBD        |             |                 |                     |                     | W jakie technologie warto zainwestować swój czas                                    |
 | TBD        |             |                 |                     |                     | propozycje tematów i gości: pszwed@gmail.com                                        |
 
 # Formuła
