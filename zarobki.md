@@ -15,3 +15,7 @@
 
 ### Twitter
 * [jak w 6 lat moje wynagrodzenie wzrosło z 5 000 zł brutto do prawie 19 000 zł brutto](https://x.com/Ojciec_Klasa/status/1822661027269362165)
+
+## Przykłady > ~300k miesięcznie
+
+* https://www.reddit.com/r/OveremployedUK/comments/1evgg7d/should_i_negotiate_pay_rise_for_j1_of_5/
